@@ -1,0 +1,1 @@
+# fun-chatgpt-prompts-for-beginners
